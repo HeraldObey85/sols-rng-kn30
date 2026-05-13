@@ -1,4 +1,4 @@
-#  
+#  Experience sol's rng like never before with sol's rng automatic Script, the #1 Script. Includes esp and unlimited stamina for unbeatable performance.
 
 
 
